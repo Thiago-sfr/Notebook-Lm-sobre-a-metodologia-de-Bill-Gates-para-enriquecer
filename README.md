@@ -1,0 +1,1 @@
+# Notebook-Lm-sobre-a-metodologia-de-Bill-Gates-para-enriquecer
